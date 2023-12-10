@@ -8,3 +8,4 @@
 
 📫 Reach me at siddharthjeph10@gmail.com or find me on [LinkedIn](https://www.linkedin.com/in/siddharth-jeph-96601b244/) – I'd love to chat and share experiences!
 
+![](https://tenor.com/en-GB/view/cat-jam-catjam-music-beat-gif-19804067)
